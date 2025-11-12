@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on no one
 - 🤔 I’m looking for help with Nothing at the moment
 - 💬 Ask me about Video games
-- 📫 How to reach me: Absolgamer25@gmail.com
+- 📫 How to reach me: flareonplayz25@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I love to play music and dance to it
